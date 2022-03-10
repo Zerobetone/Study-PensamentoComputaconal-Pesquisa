@@ -1,0 +1,2 @@
+# Study-PensamentoComputaconal-Pesquisa
+Pesquisa
